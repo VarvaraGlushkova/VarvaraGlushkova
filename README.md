@@ -1,5 +1,5 @@
 # 💫 About Me:
-* I'm currently working on web/ios app for writers 🤓<br><br>* Web  ||  UX/UI  ||  Design  ||  Mobile development<br><br>* Currently a student 📓<br><br>* Member of HSE ADC community 💚
+* I'm currently working on web/ios app for designers 🤓<br><br>* Web  ||  UX/UI  ||  Design  ||  Mobile development<br><br>* Currently a student 📓<br><br>* Member of HSE ADC community 💚
 
 
 ## 🌐 Socials:
